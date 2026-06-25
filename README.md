@@ -8,7 +8,7 @@ Here are some ideas to get you started:
 - gosto de one piece 👒
 - leio HQs 📖
   
- ![](https://media.tenor.com/B9T35X5fzggAAAAM/cars-lightning-mcqueen.gif)
+ ![](https://media.tenor.com/0eVD6AqM00YAAAAM/ngwyencuong.gif)
 
 ![](https://media.tenor.com/yop1yg-0UpQAAAAM/idk.gif)
 
