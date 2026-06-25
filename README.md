@@ -8,5 +8,6 @@ Here are some ideas to get you started:
 - Lívia 💗
 - gosto de one piece 👒
 - leio HQs 📖
-![](https://media.tenor.com/B9T35X5fzggAAAAM/cars-lightning-mcqueen.gif)
+-
+- ![](https://media.tenor.com/B9T35X5fzggAAAAM/cars-lightning-mcqueen.gif)
 
